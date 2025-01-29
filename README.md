@@ -1,3 +1,3 @@
-![Image](https://github.com/user-attachments/assets/d95e01f7-3a7b-4f20-8874-20638cbc042a)
+![Image](https://github.com/user-attachments/assets/56178996-9567-484e-a444-a09d42a41bb4)
 
-Vicky is a big fat bully 😠😭🤦‍♀️
+📍 mostly in crk or dw area 
